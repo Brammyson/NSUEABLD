@@ -13,10 +13,10 @@ or Discord.
 
 >>>Socials<<<
 
-Twitter: @Brammyson
-Discord: Brammyson#6151
-Twitch: Brammyson
-Youtube: Speedrun channel Brammyson
+>Twitter: @Brammyson
+>Discord: Brammyson#6151
+>Twitch: Brammyson
+>Youtube: Speedrun channel Brammyson
 
 
 
@@ -24,4 +24,4 @@ Youtube: Speedrun channel Brammyson
 
 
 
-All rights are owned by Nintendo
+>>>>>>>>>>>>>>>All rights are owned by Nintendo
