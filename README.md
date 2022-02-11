@@ -1,5 +1,7 @@
 Thank you for playing Newest Super Ultra Epic Awesome Brammy Land Deluxe!
 
+In 1-3, 5-GH and 8-2 there only is a secret exit, dont bother trying to find the main exit flag.
+
 > First of all, you will need a Homebrewed Wii/WiiU with Riivolution installed. There are enough
 tutorials online if you want to know how to homebrew your Wii/Wiiu.
 
