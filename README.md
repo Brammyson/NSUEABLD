@@ -11,7 +11,7 @@ or Discord.
 
 
 
->>>Socials<<<
+>>>Socials
 
 Twitter: @Brammyson -
 Discord: Brammyson#6151 -
