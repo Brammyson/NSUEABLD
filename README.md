@@ -16,7 +16,7 @@ or Discord.
 Twitter: @Brammyson -
 Discord: Brammyson#6151 -
 Twitch: Brammyson -
-Youtube: Speedrun channel Brammyson -
+Youtube: Speedrun channel Brammyson
 
 
 
